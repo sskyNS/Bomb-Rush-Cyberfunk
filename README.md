@@ -1,4 +1,4 @@
-
+[![Downloads](https://img.shields.io/github/downloads/sskyNS/Bomb-Rush-Cyberfunk/total?color=189c11)](https://github.com/sskyNS/Bomb-Rush-Cyberfunk/releases)
 ---
 
 # Bomb Rush Cyberfunk 炸弹冲刺：赛博朋克 汉化补丁
