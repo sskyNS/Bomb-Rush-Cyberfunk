@@ -1,4 +1,6 @@
 [![Downloads](https://img.shields.io/github/downloads/sskyNS/Bomb-Rush-Cyberfunk/total?color=189c11)](https://github.com/sskyNS/Bomb-Rush-Cyberfunk/releases)
+![License](https://img.shields.io/badge/license-GPLv2.0-brightgreen.svg)
+![Domain](https://img.shields.io/badge/Domain-Switch%20Software%20Development-blue.svg)
 ---
 
 # Bomb Rush Cyberfunk 炸弹冲刺：赛博朋克 汉化补丁
