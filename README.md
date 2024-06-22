@@ -99,21 +99,14 @@
 【[全网首发] 炸弹冲刺：赛博朋克 Switch版汉化发布】
 https://www.bilibili.com/video/BV1tJ4m1T7zM/?share_source=copy_web&vd_source=efa05c3a32950da463606496d07c9089
 
-![photo_2024-06-03_18-15-46](https://github.com/sskyNS/Bomb-Rush-Cyberfunk/assets/121209531/599f17e1-322a-4423-bbc6-a5569b866812)
 
+![photo_2024-06-03_18-15-46](https://github.com/sskyNS/Bomb-Rush-Cyberfunk/assets/121209531/599f17e1-322a-4423-bbc6-a5569b866812)
 
 
 https://github.com/sskyNS/Bomb-Rush-Cyberfunk/assets/121209531/e920891e-4889-454e-a99b-cfc3a182e675
 
 
 
-https://github.com/sskyNS/Bomb-Rush-Cyberfunk/assets/121209531/b1140b7a-9f1d-4e78-8cf2-a9bad4207a72))
----
-![photo_2024-06-03_18-15-46](https://github.com/sskyNS/Bomb-Rush-Cyberfunk/assets/121209531/599f17e1-322a-4423-bbc6-a5569b866812)
-
-
-
-https://github.com/sskyNS/Bomb-Rush-Cyberfunk/assets/121209531/e920891e-4889-454e-a99b-cfc3a182e675
 
 
 
