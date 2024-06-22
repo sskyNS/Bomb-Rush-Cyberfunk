@@ -96,7 +96,9 @@
 
 **祝您游戏愉快！**
 
-【[全网首发] 炸弹冲刺：赛博朋克 Switch版汉化发布】 https://www.bilibili.com/video/BV1tJ4m1T7zM/?share_source=copy_web&vd_source=efa05c3a32950da463606496d07c9089
+## 演示视频
+【[全网首发] 炸弹冲刺：赛博朋克 Switch版汉化发布】
+https://www.bilibili.com/video/BV1tJ4m1T7zM/?share_source=copy_web&vd_source=efa05c3a32950da463606496d07c9089
 
 ![photo_2024-06-03_18-15-46](https://github.com/sskyNS/Bomb-Rush-Cyberfunk/assets/121209531/599f17e1-322a-4423-bbc6-a5569b866812)
 
